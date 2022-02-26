@@ -4,7 +4,7 @@ https://vincelee888.github.io/
 
 https://vincelee888.github.io/values/
 
-Https://github.com/vincelee888/tcr.sh
+https://gist.github.com/vincelee888/822e7d2cae61fd4e6833a7247d7841ce
 
 https://www.linkedin.com/in/vincelee888/
 
